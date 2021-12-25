@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @somusingh27
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on anything exciting
 - 📫 How to reach me - botmartz@gmail.com
 
